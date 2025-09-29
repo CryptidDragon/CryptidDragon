@@ -4,7 +4,7 @@
 
 Female | Age 25 | USA
 
-Though I'm an adult, I play on the Safe server on Pony.town since 18+ allows NSFW, and I personally don't like that. :)
+Though I'm an adult, I play on the Safe server on Pony.town since 18+ allows NSFW, and I personally don't like that.
 
 I am socially awkward and not great at carrying conversations; bear with me, lol!
 
