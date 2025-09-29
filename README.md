@@ -8,4 +8,4 @@ Interests: Pony.town (often cosplaying as characters; I play on Safe since 18+ a
 
 I am socially awkward and not great at carrying conversations; bear with me, lol!
 
-I am not a shipper, so please do not interact with my pony.town cosplays with that intention; thank you for understanding!! :)
+I am personally not a shipper, so PLEASE do not interact with my Pony.town character cosplays with any romantic/shippy intention (ESPECIALLY if you're a minor!! I'm an adult! It's very uncomfy!!); thank you for understanding!! :)
