@@ -10,6 +10,6 @@ I am socially awkward and not great at carrying conversations; bear with me, lol
 
 I have no interest in romance/shipping, so PLEASE do NOT interact with my Pony.town characters/cosplays with any romantic/shippy intention (ESPECIALLY if you're a minor!! I'm an adult! It's very uncomfy!!); thank you for understanding!! :)
 
-Interests: Hermitcraft/Life Series, The Legend of Zelda series (& jojo's LoZ Linked Universe AU on tumblr!! :D), The Lord of the Rings, Invader Zim, Final Fantasy VII (OG + Remake trilogy)
+Interests: Hermitcraft/Life Series, The Legend of Zelda series (& jojo's LoZ Linked Universe AU on tumblr!! :D), The Lord of the Rings, Invader Zim, Final Fantasy VII (OG + Remake trilogy), Kid Icarus: Uprising, Super Smash Bros.
 
 Feel free to talk to me about my interests!! :)
