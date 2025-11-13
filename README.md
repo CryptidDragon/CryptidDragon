@@ -6,7 +6,9 @@ Female | Age 25 | USA
 
 Though I'm an adult, I typically play on the Safe server on Pony.town since 18+ generally allows ""adult"" topics/NSFW, and I personally don't like that.
 
-I am socially awkward and not great at carrying conversations; bear with me, lol!
+I am fairly quiet, socially awkward, and very introverted. I'm also not that great at carrying conversations. Bear with me, lol! :J
+
+If I randomly disconnect, it is most likely my connection being flaky.
 
 I have no interest in romance/shipping, so PLEASE do NOT interact with my Pony.town characters/cosplays with any romantic/shippy intention (ESPECIALLY if you're a minor!! I'm an adult! It's very uncomfy!!); thank you for understanding!! :)
 
