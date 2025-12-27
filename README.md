@@ -4,6 +4,8 @@
 
 Female | Age 25 | USA
 
+Minecraft (Java): CryptidStrife
+
 Been playing Pony.town off and on since 2017! :)
 
 Though I'm an adult, I typically play on the Safe server on Pony.town since the 18+ server generally allows ""adult"" topics/NSFW, and I'm personally not comfortable with that.
