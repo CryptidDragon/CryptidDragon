@@ -4,7 +4,7 @@
 
 Female | Age 25 | USA
 
-Minecraft (Java): CryptidStrife
+Minecraft (Java): CryptidStrife - playing MC since 2012!
 
 Been playing Pony.town off and on since 2017! :)
 
