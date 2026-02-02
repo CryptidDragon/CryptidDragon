@@ -2,7 +2,7 @@
 
 "Well hello there!" :J
 
-Female | Age 25 | USA
+F | Age 25 | USA
 
 Minecraft (Java): CryptidStrife - playing MC since 2012!
 
