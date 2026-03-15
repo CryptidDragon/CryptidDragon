@@ -22,3 +22,4 @@ Feel free to say hello and chat with me about my interests!
 
 ![Image](https://github.com/user-attachments/assets/703651b9-c39c-49b3-9274-13a12fa6a7a7) ![Image](https://github.com/user-attachments/assets/4bb68789-aa9f-4af7-b25b-4a5d3dc4c0ba)
 ![Image](https://github.com/user-attachments/assets/1b21ea83-ef8a-4bb3-8b1d-42391d7e76e7) ![Image](https://github.com/user-attachments/assets/7a2695c2-5ba3-43ea-8415-506515370b98)
+![Image](https://github.com/user-attachments/assets/6e90903a-f138-4efd-ad1d-e84689432bb9) ![Image](https://github.com/user-attachments/assets/7ed0b281-f5de-4035-8c32-fc79694a0305)
