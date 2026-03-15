@@ -16,8 +16,8 @@ I am fairly quiet and socially awkward. Sorry in advance if I don't contribute t
 
 I have no interest in romance/shipping, so PLEASE do NOT interact with my Pony.town characters/cosplays with any romantic/shippy intention (ESPECIALLY if you're a minor!! I'm an adult! It's very uncomfy!!); thank you for understanding!! :)
 
-Interests: Hermitcraft/Life Series/GIGGS D&D, The Legend of Zelda series (+ FSA manga, & Jojo's Linked Universe AU on tumblr!), The Lord of the Rings, Invader Zim, Final Fantasy VII (OG + Remake trilogy), Kid Icarus: Uprising, Avatar: The Last Airbender, Danny Phantom, Super Smash Bros
+Interests: Hermitcraft/Life Series/GIGGS D&D, The Legend of Zelda series (+ FSA manga, & Jojo's Linked Universe AU on tumblr!), The Lord of the Rings, Invader Zim, Final Fantasy VII (OG + Remake trilogy), Kid Icarus: Uprising, Avatar: The Last Airbender, Danny Phantom
 
-Feel free to say hello and chat with me about my interests! I'm usually too awkward to initiate the conversation, ahaha oops-
+Feel free to say hello and chat with me about my interests!
 
-<img width="756" height="989" alt="Christmas Grian 5" src="https://github.com/user-attachments/assets/5a0d4b1c-247b-4751-9089-0cb809b7da31" />
+![Image](https://github.com/user-attachments/assets/d201d2bc-2694-41a0-82a1-c8113f197447)
