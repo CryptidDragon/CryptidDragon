@@ -21,3 +21,4 @@ Interests: Hermitcraft/Life Series/GIGGS D&D, The Legend of Zelda series (+ FSA 
 Feel free to say hello and chat with me about my interests!
 
 ![Image](https://github.com/user-attachments/assets/703651b9-c39c-49b3-9274-13a12fa6a7a7) ![Image](https://github.com/user-attachments/assets/4bb68789-aa9f-4af7-b25b-4a5d3dc4c0ba)
+![Image](https://github.com/user-attachments/assets/1b21ea83-ef8a-4bb3-8b1d-42391d7e76e7)
